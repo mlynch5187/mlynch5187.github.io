@@ -1,2 +1,2 @@
 # michael_alex_lynch
-My Github Profile
+My Personal Page
